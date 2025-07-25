@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ogabek0423
 - 👀 I’m interested in coding and football
 - 🌱 I’m currently learning python
-- 📫 How to reach me https://t.me/ogabek0423
+- 📫 How to reach me https://t.me/User999999901
 - 😄 Pronouns: he
 - ⚡ Fun fact: 😉
 
